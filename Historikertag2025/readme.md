@@ -1,0 +1,2 @@
+Contribution to the German "Historikertag", now called "Tag der Geschichtswissenschaft", in September 2025. 
+The short paper was part of the session "Geteilte Macht? Traditionelle Hermeneutik und Digitale Methoden im Dialog", which was organised by Dr. Joëlle Weis, Marina Lemaire and Dr. Jörg Wettlaufer - all members of the steering committee of the Working Group "Digital History" of the Association of German Historians (AG Digitale Geschichtswissenschaften im VHD).
